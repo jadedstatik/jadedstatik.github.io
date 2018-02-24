@@ -1,1 +1,1 @@
-# jadedstatik.github.io-
+# jadedstatik.github.io
